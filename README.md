@@ -4,3 +4,6 @@ Click on the skin name to install
 some links may not work with time.
 # [Sole's HDDT rafis adidas edit](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file)
 ![](https://i.imgur.com/mlZbzJR.jpeg)
+
+# [vv_idke_trail](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file](https://skins.osuck.net/skins/866))
+![](https://i.imgur.com/SAtPi8s.png)
