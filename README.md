@@ -7,3 +7,6 @@ some links may not work with time.
 
 # [vv_idke_trail](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file](https://skins.osuck.net/skins/866))
 ![](https://i.imgur.com/SAtPi8s.png)
+
+# [Bacon boi CK the OLD vers and the blue one](https://skins.osuck.net/skins/1648)
+![](https://i.imgur.com/h78aHEq.png)
