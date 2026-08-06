@@ -10,3 +10,6 @@ some links may not work with time.
 
 # [Bacon boi CK the OLD vers and the blue one](https://skins.osuck.net/skins/1648)
 ![](https://i.imgur.com/h78aHEq.png)
+
+# [Placebo dt](https://web.archive.org/web/20251119072745mp_/https://sk.ego.baby/data/downloads/placebo%20dt.osk)
+![](https://i.imgur.com/LoHNdeX.jpeg)
