@@ -13,3 +13,6 @@ some links may not work with time.
 
 # [Placebo dt](https://web.archive.org/web/20251119072745mp_/https://sk.ego.baby/data/downloads/placebo%20dt.osk)
 ![](https://i.imgur.com/LoHNdeX.jpeg)
+
+# [Monkoedit gray edit by vSole](https://drive.google.com/drive/folders/1U2nrWdYb2zKYIKRDSAmZWBC9PJWBkdDs?usp=drive_link)
+![](https://i.imgur.com/PlRVfZ4.jpeg)
