@@ -5,6 +5,9 @@ some links may not work with time.
 # [Sole's HDDT rafis adidas edit](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file)
 ![](https://i.imgur.com/mlZbzJR.jpeg)
 
+# [Sole's blue rafis HDDT edit](https://www.mediafire.com/file/kxxyq1pe3cb5am4/Rafis+2018-03-26+HDDT+blue+edit+by+sole.osk/file)
+![](https://i.imgur.com/KpgCo90.jpeg)
+
 # [vv_idke_trail](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file](https://skins.osuck.net/skins/866))
 ![](https://i.imgur.com/SAtPi8s.png)
 
