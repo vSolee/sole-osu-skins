@@ -8,6 +8,9 @@ some links may not work with time.
 # [Sole's blue rafis HDDT edit](https://www.mediafire.com/file/kxxyq1pe3cb5am4/Rafis+2018-03-26+HDDT+blue+edit+by+sole.osk/file)
 ![](https://i.imgur.com/KpgCo90.jpeg)
 
+# [Prawilnosc vJP (2024 version)](https://www.mediafire.com/file/fbcs101xigtwje0/Prawilosc+vJP+without+followpoints.osk/file)
+![](https://raw.githubusercontent.com/vistafan12/rafis-skins/main/screenshots/45.png)
+
 # [vv_idke_trail](https://skins.osuck.net/skins/866)
 ![](https://i.imgur.com/SAtPi8s.png)
 
