@@ -5,6 +5,9 @@ some links may not work with time.
 # [Sole's HDDT rafis adidas edit](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file)
 ![](https://i.imgur.com/mlZbzJR.jpeg)
 
+# [Seysant III](https://web.archive.org/web/20240207223808if_/http://puu.sh/m52iH/6b3dbc8b64.osk)
+![](https://i.imgur.com/HdzvAgO.jpeg)
+
 # [Sole's blue rafis HDDT edit](https://www.mediafire.com/file/kxxyq1pe3cb5am4/Rafis+2018-03-26+HDDT+blue+edit+by+sole.osk/file)
 ![](https://i.imgur.com/KpgCo90.jpeg)
 
