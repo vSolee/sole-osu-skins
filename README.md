@@ -25,3 +25,6 @@ some links may not work with time.
 
 # [Monkoedit gray edit by vSole](https://drive.google.com/drive/folders/1U2nrWdYb2zKYIKRDSAmZWBC9PJWBkdDs?usp=drive_link)
 ![](https://i.imgur.com/PlRVfZ4.jpeg)
+
+# [Aristia edit](https://drive.google.com/file/d/1YocTV83KPYoJ969ltikrnpQPTF-IIRQM/view?usp=drive_link)
+![](https://i.imgur.com/7OJG9EE.jpeg)
