@@ -17,6 +17,9 @@ some links may not work with time.
 # [Prawilnosc vJP (2024 version)](https://www.mediafire.com/file/fbcs101xigtwje0/Prawilosc+vJP+without+followpoints.osk/file)
 ![](https://raw.githubusercontent.com/vistafan12/rafis-skins/main/screenshots/45.png)
 
+# [- theez (gwb edit)](https://skins.osuck.net/skins/4863)
+![](https://i.imgur.com/HGep0Ph.png)
+
 # [vv_idke_trail](https://skins.osuck.net/skins/866)
 ![](https://i.imgur.com/SAtPi8s.png)
 
