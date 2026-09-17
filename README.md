@@ -8,6 +8,9 @@ some links may not work with time.
 # [Sole's boop edit](https://drive.google.com/file/d/1glMoEYKsTZFT7Sq9ujo8CYVK_gXKmhF8/view?usp=drive_link)
 ![](https://i.imgur.com/IU5ZuMG.jpeg)
 
+# [asdasd](https://skins.osuck.net/skins/4296)
+![](https://i.imgur.com/1de15Ta.png)
+
 # [Seysant III](https://web.archive.org/web/20240207223808if_/http://puu.sh/m52iH/6b3dbc8b64.osk)
 ![](https://i.imgur.com/HdzvAgO.jpeg)
 
