@@ -5,6 +5,9 @@ some links may not work with time.
 # [Sole's HDDT rafis adidas edit](https://www.mediafire.com/file/cq5fcrs4usrph0b/sole's+HDDT+adidas+edit.osk/file)
 ![](https://i.imgur.com/mlZbzJR.jpeg)
 
+# [・✧Rafis but tripplestack✧・](https://skins.osuck.net/skins/5650)
+![](https://i.imgur.com/kBeBPTQ.png)
+
 # [Sole's boop edit](https://drive.google.com/file/d/1glMoEYKsTZFT7Sq9ujo8CYVK_gXKmhF8/view?usp=drive_link)
 ![](https://i.imgur.com/IU5ZuMG.jpeg)
 
