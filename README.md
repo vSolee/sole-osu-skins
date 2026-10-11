@@ -23,6 +23,9 @@ some links may not work with time.
 # [Prawilnosc vJP (2024 version)](https://www.mediafire.com/file/fbcs101xigtwje0/Prawilosc+vJP+without+followpoints.osk/file)
 ![](https://raw.githubusercontent.com/vistafan12/rafis-skins/main/screenshots/45.png)
 
+# [- aristia poddymiona](https://skins.osuck.net/skins/5771)
+![](https://i.imgur.com/qPs8SyA.png)
+
 # [- theez (gwb edit)](https://skins.osuck.net/skins/4863)
 ![](https://i.imgur.com/HGep0Ph.png)
 
