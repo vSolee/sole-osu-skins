@@ -14,6 +14,9 @@ some links may not work with time.
 # [asdasd](https://skins.osuck.net/skins/4296)
 ![](https://i.imgur.com/1de15Ta.png)
 
+# [im a fancy lad (Sep-2020)](https://mega.nz/file/UKAigCAa#B9w9CnA1ejrg8wV5F4FxUxoF57_VO8KrMZrOvxVlwJE)
+![](https://i.imgur.com/Ui3YPM3_d.webp?maxwidth=1520&fidelity=grand)
+
 # [Seysant III](https://web.archive.org/web/20240207223808if_/http://puu.sh/m52iH/6b3dbc8b64.osk)
 ![](https://i.imgur.com/HdzvAgO.jpeg)
 
